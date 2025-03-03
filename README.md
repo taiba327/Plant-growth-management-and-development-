@@ -1,1 +1,0 @@
-# Plant-growth-management-and-development-
